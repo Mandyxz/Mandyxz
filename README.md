@@ -1,7 +1,4 @@
-hiiii I am Mandy, also known as Nik or Rox.
-
-
-Здравствуйте, меня зовут Мэнди, также известна как, Nik or Rox.
+hiiii 
 
 
 mandyzx6@gmail.com
